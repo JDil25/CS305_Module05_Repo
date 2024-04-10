@@ -1,0 +1,1 @@
+You are welcome to make any changes, as long as it is school appropriate, of course.
